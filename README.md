@@ -1,3 +1,4 @@
+![IMG_20230802_170827_557](https://github.com/Mikaellygomes/Mikaellygomes/assets/141924875/85e223d6-8ad9-4cf0-843a-2d75f62442b3)
 Olá colegas,sejam bem vindos ao meu GitHub☺️
 
 Meu nome é Mikaelly Cristina Gomes dos Santos,tenho 16 anos sou aluna do Instituto Federal do Tocantins.
