@@ -11,4 +11,3 @@ Gosto muito da área de Informática,mas acho bastante complexa.Nas minhas horas
 <img src="https://img.shields.io/badge/-Linux-black?style=for-the-badge&logo=Linux" />
 <img src="https://img.shields.io/badge/GitHub-%2312100E.svg?&style=for-the-badge&logo=Github&logoColor=white" />
 
-https://instagram.com/mikaelly__gomes?utm_source=qr&igshid=ZDc4ODBmNjlmNQ%3D%3D
